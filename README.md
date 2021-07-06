@@ -1,1 +1,1 @@
-# Hey! 🫂 Welcome.
+# 🫂 Welcome.
